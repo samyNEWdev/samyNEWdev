@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @samyNEWdev
+- 👀 I’m interested in web dev  
+- 🌱 I’m currently learning the basics of css
+- 📫 How to reach me ... never.dropping on ig
